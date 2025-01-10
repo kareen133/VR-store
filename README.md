@@ -1,4 +1,3 @@
-![project2](https://github.com/user-attachments/assets/be0b4412-d66c-44ad-9f10-4680a1e1805b)
 ![project5](https://github.com/user-attachments/assets/1958adda-a5af-41a4-b3b6-99bf342a5d22)
 
 # VR Store
